@@ -1,6 +1,6 @@
 # What is this?
 ~~lmao idk~~
-> https://nawfal88888888.github.io/nawfalhomepage/
+> https://nawfal88888888.github.io/krunker4chromebook/
 
 ------------
 
